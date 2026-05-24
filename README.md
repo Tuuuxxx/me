@@ -8,8 +8,22 @@
   ___)=(___/
        _|_
       |___|
+      
+about me:
+    "Несмешной клоун-прогоаммист, думает
+    что если он напишет всё био английским языком
+    то это будет лучше чем био на русском"
+
 
 THE BEST WOMEN IN MY LIFE:
+    https://t.me/FaFe1z
 
+Projects:
+    Tg bots:
+        https://t.me/PurryFornushka - e621 parser(⁠@⁠_⁠@⁠)
+        https://t.me/MongolianBroBot - ¯⁠\⁠_⁠(⁠ツ⁠)⁠_⁠/⁠¯
+    Web:
+        http://mushroombox.ru - mushroom box game
 
-https://t.me/FaFe1z
+Telegram Channel:
+    https://t.me/TuxCom
